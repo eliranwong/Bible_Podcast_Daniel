@@ -13,3 +13,5 @@ This repository contains materials for compiling videos uploaded at:
 [Daniel 1 - Faith, Wisdom, and Royal_Favor](https://youtu.be/7MKCNcqgsz8)
 
 [Daniel 2 - Nebuchadnezzar's Dream and Daniel's Interpretation](https://youtu.be/qovVsqpNhrk)
+
+[Daniel 3 - Shadrach, Meshach, and Abednego](https://youtu.be/R_EWo0FG2yg)
