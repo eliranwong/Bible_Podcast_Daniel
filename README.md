@@ -33,3 +33,9 @@ This repository contains materials for compiling videos uploaded at:
 [Daniel 11 - Kings of the North and South](https://youtu.be/iokB3P_CH8Q)
 
 [Daniel 12 - End Times Prophecy](https://youtu.be/OI6KPoo_gpc)
+
+# Donation
+
+We appreciate your donations to the Gospel Church (UK): 
+
+https://www.gospelchurch.uk/%E5%A5%89%E7%8D%BB?lang=en
